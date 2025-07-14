@@ -1,0 +1,3 @@
+Lex Exercise - 1
+CH.EN.U4CSE22019
+G SAI SANKAR
